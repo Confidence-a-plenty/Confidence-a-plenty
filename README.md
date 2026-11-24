@@ -1,4 +1,4 @@
- <img src="https://cdn.phototourl.com/anon/2026-11-22-51fc50fc-6526-4594-a156-2166f93d8d32.jpg">
+ <img src="https://images.genius.com/8251b166f42a71aa5824b220e93153d6.995x995x1.jpg">
 
 ♤ Hello I'm Confidence
 
