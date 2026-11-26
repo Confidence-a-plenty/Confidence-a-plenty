@@ -4,6 +4,6 @@
 <p align="center"><a href="confidence-a-plenty.straw.page">♤ 𝖲𝗍𝗋𝖺𝗐𝖯𝖺𝗀𝖾 </a></p>
 
 <p align="center">
- 𝖯𝗎𝗇𝗄 𝖡𝗂𝗍𝖼𝗁 𝖥𝗅𝖺𝗌𝗁 - 𝗌𝖤𝗅𝖿
+ 𝖧𝖮𝖳 𝖲𝖨𝖭𝖢𝖤 𝖦𝖱𝖠𝖣𝖤 𝖲𝖢𝖧𝖮𝖮𝖫 𝖲𝖮𝖢𝖢𝖤𝖱!
 </p>
 
