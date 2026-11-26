@@ -1,5 +1,8 @@
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTDxpSGnreFuCjIULFZMO6i54XS_sFvmnHk2sLULWfaqg&s=10">
+atabook
 
-> Confidence Aplenty is a girl from the lands of America.
+> https://confidenceaplenty.atabook.org/
 
 
-> Please don't crush me, I'm just a tiny bug.
+strawpage
+> https://confidence-a-plenty.straw.page
